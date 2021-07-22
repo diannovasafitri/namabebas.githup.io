@@ -1,1 +1,0 @@
-# namabebas.githup.io
